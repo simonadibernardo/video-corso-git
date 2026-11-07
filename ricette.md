@@ -1,2 +1,2 @@
 #RICETTE di Simo
-*SpaghettiAglioOlioPeperoncino
+*Spaghetti aglio, olio e peperoncino
